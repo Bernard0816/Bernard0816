@@ -1,4 +1,4 @@
-Hi there 👋, I’m Totti M.
+Hi there 👋, I’m Bernard
 
 🔐 Cybersecurity Analyst | Threat Hunter | Vulnerability Management Specialist
 
